@@ -24,3 +24,4 @@
 3. Walk the dog. 
 4. Make dinner. 
 5. Go to yoga.  
+[Yoga Studio](http://yogapearlpdx.com/) 
